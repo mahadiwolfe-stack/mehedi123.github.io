@@ -1,5 +1,7 @@
-MEHEDI
-Administrative Professional | Customer Relationship & Operations Specialist
+
+Administrative Professional
+
+Customer Relationship & Operations Specialist
 📍 161/1, Elephant Road, Dhanmondi, Dhaka-1205 | 📞 +8801622-271770 | ✉️ hasanmahadi6121653@gmail.com
 
       CAREERCAREER OBJECTIVE
